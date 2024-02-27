@@ -5,8 +5,7 @@
 + 💻 My abilities include collaborative work, organization, bibliographical research, scientific writing, data recollection, and data analysis.
 + 🌐 I'm expanding my computational neuroscience and cognitive science knowledge (especially cognitive psychology).
 + 👯 I'm open to collaborating, especially remotely, with both labs and individuals with experience and knowledge in the fields of my interest.
-+ 💬 Pronouns: she/they
-+ 📩 Contact me by [didiramsaranchin@gamil.com](didiramsaranchin@gamil.com).
++ 📩 Contact me by [didiramsaranchin@gamil.com](didiramsaranchin@gamil.com) (pay attention to pronouns, be kind!).
 
 + ⚡ Personal Interests: tulips, cats, Pokémon, jazz, boleros and science
 
