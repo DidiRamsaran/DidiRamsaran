@@ -1,4 +1,4 @@
-### Hello, darlings!🧚‍♀️
+# Hello, darlings!🧚‍♀️
 
 + 🏫 My name is Didi Ramsaran Chin (she/they), I'm a psychology undergrad student at Catholic University Andrés Bello (UCAB, Venezuela).
 + 🔭 My research experience involves social psychology, mainly through non-experimental designs.
